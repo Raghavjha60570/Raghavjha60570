@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Raghav jha
 - 👀 I’m  so much interested in ...learn coding ,databases and feel very much plesaurable to use  and learn new technology
-- 🌱 I’m currently learning ...java as i'm just completed my class 12 
+- 🌱 I’m currently learning ...java 
 - 💞️ I’m looking to collaborate on ...various projects which enhance my early age learnings which will help in my carrer
 - 📫 How to reach me ...you can contact me on my email Rjha60571@gmail.com
 - 😄 Pronouns: ...
